@@ -1,1 +1,2 @@
 # dog-wiki
+Are you a dog lover? If yes, then this is the right place for you to know more about dog breeds and their characteristics. There are several cute collections of dog photos for you that will definitely make your day!
